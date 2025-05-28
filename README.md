@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Your Name]  
+# 👋 Hi, I'm Nancy! 
 **Product Owner | Program Manager | Sales Technology Strategist**  
 Driving scalable adoption, automation, and efficiency through sales engagement platforms like Outreach.io and Salesforce.
 
